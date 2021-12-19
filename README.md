@@ -1,2 +1,2 @@
 # DarwinsBulldogs
-Rediscovering the anti-racist legacies of Darwin, Huxley, and other great evolutionists.
+Rediscovering the anti-racist and anti-eugenics legacies of Darwin, Huxley, and other great evolutionists.
